@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GabsGameplayYT
+- 👀 I’m interested in Gaming 
+- 🌱 I’m currently learning nothing right now
+- 💞️ I’m looking to collaborate on nothing
+- I have a Youtube 
